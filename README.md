@@ -8,5 +8,5 @@
 
 > Y gracias por todas las clases fueron muy didacticas aprendí (y estoy aprendiendo aún de ellas) mucho!
 
-> que tenga unas Felices Fiestas, chao chao!!
+### que tenga unas Felices Fiestas
 
